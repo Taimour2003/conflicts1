@@ -1,3 +1,1 @@
-# conflicts1
-
-resolving conflicts
+adjadhakjdhashdjkhadjkh
